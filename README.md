@@ -1,2 +1,3 @@
 # My-wav-files-for-projects
-wav Repo
+This repositori ISNT FOR REDISTRIBUITION, because it contains COPYRIGHTED MATERIAL, so DO NOT DOWNLOAD ANYTHING FROM IT!
+You have been warned!
